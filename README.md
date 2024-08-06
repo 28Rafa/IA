@@ -1,2 +1,1 @@
-# nseiquesite-esse
-grtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgtrgrttrgtrgrtgrtgrtgrttgrregrgrgrgrgrgrgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtgrtg
+# inteligencia articial
